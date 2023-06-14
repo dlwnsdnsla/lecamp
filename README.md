@@ -1,1 +1,1 @@
-# lecamp
+https://dlwnsdnsla.github.io/lecamp/
